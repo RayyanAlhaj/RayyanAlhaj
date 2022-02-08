@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @RayyanAlhaj
+- 👀 I’m interested in Cryptocurrency and Artificial Intellegence 
+- 🌱 I’m currently learning Artificial Intellegence
