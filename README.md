@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @RayyanAlhaj
-- 👀 I’m interested in Cryptocurrency and Artificial Intellegence 
-- 🌱 I’m currently learning Artificial Intellegence
+- 🌱 I’m an Artificial Intellegence Specialist in SGP
+- 👀 I’m interested in the Blockchain and Medical AI 
